@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @leakystar
+- 🌱 I’m currently learning basic coding
+- 📫 You can reach me by discord @ niconstroid! 
